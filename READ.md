@@ -1,0 +1,1 @@
+Até o momento estou colhendo muitos insights no curso. 
